@@ -330,6 +330,7 @@ Mocht het slachtoffer een vuurwapen hebben, dan is medewerking niet verplicht.
    * Hetzelfde voertuig met de juiste kleur: 15 minuten;
    * Zelfde kenteken: 1 uur;
    * Persoonsherkenning: 4 uren;
+8. Het dragen van gezichtsbedekkende kledij zie Artikel VIII-6 van het wetboek, vallen ook onder criminele activiteit. 
 
 Uitzondering kan gegeven worden door het Crimineel Aanspreekpunt.
 
